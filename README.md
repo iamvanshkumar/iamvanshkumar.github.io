@@ -1,1 +1,1 @@
-# iamvanshkumar.github.io
+vkphotography.github.io
